@@ -8,3 +8,4 @@ test file
 
 ![updated_df](https://github.com/user-attachments/assets/eadf086a-68eb-4942-8bb7-3c5cd3ccb1ed)
 ![docusign](https://github.com/user-attachments/assets/3f5c0395-e311-46db-80c5-d1423e2dcada)
+![footer-img](https://github.com/user-attachments/assets/636cb04d-e472-4301-91b2-5b833231b1d0)
