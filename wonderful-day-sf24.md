@@ -15,3 +15,7 @@
 
 ![WHAT A WONDERFULL DAY 2](https://github.com/user-attachments/assets/39f55ab0-2753-4fce-981a-191b8e1c0238)
 ![health-cloud-blog](https://github.com/user-attachments/assets/a6ff0f56-4ace-4c71-ad3b-6f0ba26d5e91)
+
+![collage](https://github.com/user-attachments/assets/9a199b77-feee-4e7f-b8c1-228ea2c9b4d3)
+![case study 1](https://github.com/user-attachments/assets/0d5f87b1-053f-4279-a07e-076556a04232)
+![clg-highres](https://github.com/user-attachments/assets/c08a164f-904b-4464-a771-8359eab7c837)
