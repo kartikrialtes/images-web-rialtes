@@ -16,4 +16,5 @@ agnetforce
 
 ![Agentforce-emailer](https://github.com/user-attachments/assets/1190b176-9b4f-4fcf-8fc7-f166be9f8e5b)
 
-
+![Agentforce-header-logo](https://github.com/user-attachments/assets/2bbd6b7d-881c-445b-8c17-4d1ed7e575e9)
+![Case study Image](https://github.com/user-attachments/assets/e3cab08c-8bdb-4171-a688-4831dd2fa82a)
