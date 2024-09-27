@@ -5,3 +5,5 @@
 ![Header Logo](https://github.com/user-attachments/assets/38dd8846-2f59-443a-98ae-36137f3d2688)
 
 ![Data-cloud banner](https://github.com/user-attachments/assets/1285870d-6507-428e-8229-beec3f64f3e1)
+
+![SuccessFactor Case Study Banner](https://github.com/user-attachments/assets/1f5cb9bf-0a82-4058-8e90-2ca09a21bc99)
